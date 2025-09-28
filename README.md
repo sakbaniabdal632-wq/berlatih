@@ -1,0 +1,1 @@
+belajarnya harus sungguh-sungguh
